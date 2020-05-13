@@ -1,0 +1,2 @@
+# LinkedinProfileWebAutomation
+tools make it a far easier to job to win connections than a regular, non-automated approach; which would eventually make it easier for you to pitch your products and show your content to those newly gained connections. The further benefits include increased views and messages in your LinkedIn inbox. These tools are especially useful for those with multiple LinkedIn accounts, as they can rid them of the time-consuming and repetitive tasks and focus on the more core functions
